@@ -1,6 +1,8 @@
 # publicjournalofthings
 
 
+https://bvdub.bandcamp.com/album/release-me
+
 
 ## Getting started
 
